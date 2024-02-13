@@ -1,1 +1,1 @@
-This is a stupid jokr.
+This is a stupid joke.
